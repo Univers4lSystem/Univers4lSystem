@@ -9,13 +9,7 @@
 * possibly fast mood-switch out of tiredness or just switches of alters
 
 * struggles with social interactions, we try out best...
-
-
-
-
-
 ____
-
 
 <img src="https://files.catbox.moe/nnvurg.png" width="169" align="right">
 DNI:
@@ -24,20 +18,10 @@ Anyone who hates ppl for being furry, therian ect..
 WSS, please get away from us
 DT, Tommyinnit, Jack stans (idgaf about fans)
 Endogenic (and everything that falls in that category) "systems"
-
-
-
-
-
-
-
-
-
 ___
 
 
 we do not mind ships! if we do we will simply not reciprocate anything or tell you.
-
 ___
 
 
