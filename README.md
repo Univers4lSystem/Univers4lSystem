@@ -12,7 +12,8 @@ Details about the Universal System....
 
 
 
-
+____
+![](https://files.catbox.moe/nnvurg.png)
 DNI
 Basic DNI criteria
 Anyone who hates ppl for being furry, therian ect..
