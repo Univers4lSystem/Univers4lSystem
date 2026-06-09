@@ -13,11 +13,17 @@
 ____
 
 <img src="https://files.catbox.moe/nnvurg.png" width="169" align="right">
+
 DNI:
+
 * Basic DNI criteria
+  
 * Anyone who hates ppl for being furry, therian ect..
+  
 * WSS, please get away from us
+  
 * DT, Tommyinnit, Jack stans (idgaf about fans)
+  
 * Endogenic (and everything that falls in that category) "systems"
 
 ___
