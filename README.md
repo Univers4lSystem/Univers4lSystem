@@ -26,6 +26,13 @@ DT, Tommyinnit, Jack stans (idgaf about fans)
 Endogenic (and everything that falls in that category) "systems"
 
 
+
+
+
+
+
+
+
 ___
 
 
