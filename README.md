@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/fu3bcm.png" width="300">
+<img src="https://files.catbox.moe/fu3bcm.png" width="400">
 # Details about the Universal System....
 
 * DID (probably polyfragmented)
@@ -31,8 +31,7 @@ ___
 All of the times we are in alter skins, so no stealing (okay with inspo but please ask preferably).
 
 ___
+<img src="https://files.catbox.moe/v62rut.png#300x300" width="169" align="right">
 no forcing ships, ask first
 we don't mind freaky jokes.
 we do however mind some stuff about dark humor, such as joking about sexual assault ect.. unless it's your own experience
-
-<img src="https://files.catbox.moe/v62rut.png#300x300" width="169" align="right">
