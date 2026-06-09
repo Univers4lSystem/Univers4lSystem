@@ -1,4 +1,5 @@
 <img src="https://files.catbox.moe/fu3bcm.png" width="400">
+
 # Details about the Universal System....
 
 * DID (probably polyfragmented)
@@ -27,6 +28,7 @@ ___
 INT without issues, unless specified in my Pony name with IWC or DNI(uf)
 You're welcome to sit with me even if I'm with someone, just be mindful of whoever is already with me
 
+if I don't respond wisp to me, I might be off-tab or afk
 ___
 All of the times we are in alter skins, so no stealing (okay with inspo but please ask preferably).
 
