@@ -2,6 +2,9 @@
 
 # Details about the Universal System....
 
+___
+
+
 * DID (probably polyfragmented)
 
 * DPDR
@@ -57,3 +60,5 @@ ___
 no forcing ships, ask first
 we don't mind freaky jokes.
 we do however mind some stuff about dark humor, such as joking about sexual assault ect.. unless it's your own experience
+
+___
