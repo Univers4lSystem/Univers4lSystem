@@ -7,7 +7,7 @@ ___
 <p align="center">
 <a href="https://rentry.co/universalsysboard">int/Board of the System</a>
 <a href="https://rentry.co/UniversalSYSintALTERS">INT / Cuddles info</a>
-<a href="">mainfronters strawpage(wip)</a>
+<a href="">mainfronters list(wip)</a>
 <a href="https://universalsystem.atabook.org">atabook</a>
 <a href="https://pronouns.cc/@Univers4lSystem">pronouns page</a>
 <a href="https://universalsystempage.straw.page">the treatise from hell.</a>
