@@ -5,7 +5,7 @@
 ___
 
 <p align="center">
-<a href="https://rentry.co/universalsysboard">int/Board of the System</a>
+<a href="https://rentry.co/universalsysboard">Board of stuff</a>
 <a href="https://rentry.co/UniversalSYSintALTERS">INT / Cuddles info</a>
 <a href="https://rentry.co/MainFrontersUniversalSystem">mainfronters list</a>
 <a href="https://universalsystem.atabook.org">atabook</a>
